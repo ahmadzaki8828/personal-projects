@@ -1,0 +1,1 @@
+A repository of my personal projects of mine so far some of which i did by watching a youtube video and others where i built the project up either by myself or with friends from scratch through trial and error
